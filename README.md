@@ -22,4 +22,8 @@
 
 ## Contact
 
-[LinkedIn](https://www.linkedin.com/in/emily-cooke-frantzen-89a2691b6)
+:link: [LinkedIn](https://www.linkedin.com/in/emily-cooke-frantzen-89a2691b6)
+
+
+##
+![Alt Text](https://media.giphy.com/media/26tn33aiTi1jkl6H6/giphy.gif)
